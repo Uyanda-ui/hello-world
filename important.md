@@ -1,0 +1,1 @@
+Making sure you understand the work is more important because you will need to do it again, understanding how you got to your answer will help you to be able to do it again and improve your skills.
